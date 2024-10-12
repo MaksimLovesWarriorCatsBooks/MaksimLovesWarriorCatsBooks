@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on WarriorCats WebSite
 - 📫 How to reach me ___
 - 😄 Pronouns: He
-- ⚡ Fun fact: I want to be the one of the biggest fans of WarriorCats Bo0k!
+- ⚡ Fun fact: I want to be the one of the biggest fans of WarriorCats Books!
 
 <!---
 MaksimLovesWarriorCatsBooks/MaksimLovesWarriorCatsBooks is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
